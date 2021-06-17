@@ -1,1 +1,1 @@
-# sessiya
+# azimjonbek.github.io
